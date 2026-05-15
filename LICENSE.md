@@ -1,4 +1,4 @@
-
+Personalizado Marvel Rivals traps ESP é o melhor Marvel Rivals traps ESP com mira automática e morte instantânea. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
